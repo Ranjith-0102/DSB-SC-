@@ -79,7 +79,7 @@ xgrid
 
 # Tablular Column
 ![WhatsApp Image 2025-11-29 at 13 19 56_2b3b0d08](https://github.com/user-attachments/assets/ddf1c1e4-8bcf-46a7-bd04-e47169d60cca)
-![WhatsApp Image 2025-11-29 at 13 19 56_b285c75c](https://github.com/user-attachments/assets/521c5ff4-fe0b-4a59-ae09-8fb2a860a436)
+![WhatsApp Image 2025-12-05 at 13 59 44_490253a3](https://github.com/user-attachments/assets/cf3da59e-a501-4d98-9748-aaa7d183e781)
 
 
 # Result
